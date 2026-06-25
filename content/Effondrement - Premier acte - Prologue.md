@@ -15,4 +15,4 @@ alors seulement,
 libéré.e du juge de sa pensée
 Iel peut s'entendre penser.
 
-  Bl4ck-Redstart
+	- bl4ck Redstart
