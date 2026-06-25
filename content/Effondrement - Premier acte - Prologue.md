@@ -14,3 +14,5 @@ le deuil du *mot juste*
 alors seulement,
 libéré.e du juge de sa pensée
 Iel peut s'entendre penser.
+
+  Bl4ck-Redstart
