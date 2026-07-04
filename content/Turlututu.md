@@ -49,6 +49,10 @@ De ne plus avoir la force,
 Le courage,
 L’envie,
 D’essayer,
-De recommence
+De recommencer,
+De me battre.
+
+Je veux que ce soit simple.
+Mais je ne suis pas simple.
 
     Tidou
