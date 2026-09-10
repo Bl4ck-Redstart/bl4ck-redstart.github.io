@@ -9,7 +9,7 @@ il vit légèrement
 libre seul ?
 je préfère être heureux ensemble
 ne pas subir le gris 
-mais lutter poir des espaces colorés
+mais lutter pour des espaces colorés
 de rencontre
 d'émulsion, d'ébullition 
 → démolition
