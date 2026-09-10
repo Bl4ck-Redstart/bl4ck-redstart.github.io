@@ -16,7 +16,8 @@ d'émulsion, d'ébullition
 de plaisirs furtifs
 
 > notre vie entière pourrait être une fête
--- William Morris
+
+William Morris
 
 <span class="timtonix">Timtonix</span>
 
